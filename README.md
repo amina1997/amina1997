@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Amina
+- 👀 I’m interested in having 
+- 🌱 I’m currently learning how to have more fun
+- 💞️ I’m looking to collaborate on fun activities 
+- 📫 How to reach me : //linkedin.com/in/amina-safa/
